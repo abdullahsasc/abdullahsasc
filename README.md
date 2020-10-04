@@ -12,8 +12,3 @@
 > Email and Skype: nomansasc11@outlook.com<br>
 
 #### 5 Years Work Experience & 90+ COMPLETED PROJECTS 🔥
-
-Let's talk about what I like what I don't forget the boring thing
-I Love Pizza 🍕 As a Programmer/Self Employed I have to always stay motivated plus update own skill this is a pain in the Ass 🤫
-We all know Elon Musk, I love this person because I love rocket science 🚀 but I don't know anything about Rocket science. The only thing I know about rocket is Recent Crew Dragon uses Javascript to control the Dragon and most of the think done my C and C++ that's al I know 🪐
-
